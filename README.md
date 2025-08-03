@@ -1,0 +1,1 @@
+I have no idea what is this but somewhat related to crypto. I needed to do something here to help a coin to get official but it's been ages and anyway it didn't work. It's here for memories. /// 03/08/2025
